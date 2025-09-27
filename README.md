@@ -2,6 +2,10 @@
 Own works of creativity inspired by real personal experiences
 
 ![IMG_0915](https://github.com/user-attachments/assets/5f35694b-f820-4800-942b-9ddd370c6af3)
+
+<img width="700" height="376" alt="version=1 uuid=04CACFF5-A225-44C4-A29A-863B950726CF mode=compatible noloc=1" src="https://github.com/user-attachments/assets/f4e8db25-f491-4008-900d-1f223cfd7fdf" />
+
+
 ![IMG_0916](https://github.com/user-attachments/assets/6adbee8e-66b9-4667-b651-6c0471a23ebd)
 ![IMG_0917](https://github.com/user-attachments/assets/d3822894-ad07-4430-8fc8-0919fd99e0d2)
 ![IMG_0918](https://github.com/user-attachments/assets/0c09f810-2242-4eeb-9bd7-f5509314be2c)
