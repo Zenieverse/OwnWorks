@@ -7,7 +7,7 @@ https://youtu.be/YBYkbS-Mzds?si=GEDaokD9SdwynY8U
 
 https://vimeo.com/1144376770 (20 pcs Col.)
 
-<img width="2000" height="1410" alt="IMG_1655" src="https://github.com/user-attachments/assets/67f3ba30-1f1c-4674-97ec-4848f2cdd708" />
+<img width="2000" height="1410" alt="IMG_1656" src="https://github.com/user-attachments/assets/c7f75b4a-3ac2-44e3-b13d-25b0f1a23541" />
 
 
 <img width="1080" height="1350" alt="IMG_1652" src="https://github.com/user-attachments/assets/5b98d845-15e9-49c8-9053-f4ae416eaa47" />
