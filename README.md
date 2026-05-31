@@ -21,10 +21,15 @@ Inspired by the Combo of Heart and Mind in one Package experienced with bless in
 
 <img width="1080" height="1350" alt="IMG_1652" src="https://github.com/user-attachments/assets/5b98d845-15e9-49c8-9053-f4ae416eaa47" />
 
+2026's Summer Sun has been so harsh on us all globally
+
 ![IMG_0915](https://github.com/user-attachments/assets/5f35694b-f820-4800-942b-9ddd370c6af3)
+
+Mid-Autumn Tet or Fest is mainly for Kids, with lanterns, cakes, joyful plays, ...
 
 <img width="700" height="376" alt="version=1 uuid=04CACFF5-A225-44C4-A29A-863B950726CF mode=compatible noloc=1" src="https://github.com/user-attachments/assets/f4e8db25-f491-4008-900d-1f223cfd7fdf" />
 
+Law school inspired this piece of works
 
 ![IMG_0916](https://github.com/user-attachments/assets/6adbee8e-66b9-4667-b651-6c0471a23ebd)
 ![IMG_0917](https://github.com/user-attachments/assets/d3822894-ad07-4430-8fc8-0919fd99e0d2)
