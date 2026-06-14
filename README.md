@@ -1,6 +1,8 @@
 # OwnWorks
 Own works of creativity inspired by real personal experiences
 
+https://github.com/Zenieverse/Dr.-T ; https://dr-t-764082783379.us-west1.run.app : inspired and experienced with bless in 2026: 
+
 https://github.com/Zenieverse/eTopia: inspired by globalchallenges call to action back in 2017
 
 https://paragraph.com/@urbanlegends/
