@@ -35,6 +35,9 @@ Mid-Autumn Tet or Fest is mainly for Kids, with lanterns, cakes, joyful plays, .
 Law school inspired this piece of works
 
 ![IMG_0916](https://github.com/user-attachments/assets/6adbee8e-66b9-4667-b651-6c0471a23ebd)
+
+Grandma's pass-away in 2022, amid mild Covid19 has been such @n iínpiration for this piece of works.
+
 ![IMG_0917](https://github.com/user-attachments/assets/d3822894-ad07-4430-8fc8-0919fd99e0d2)
 ![IMG_0918](https://github.com/user-attachments/assets/0c09f810-2242-4eeb-9bd7-f5509314be2c)
 ![IMG_0919](https://github.com/user-attachments/assets/e5154cc3-2fc7-43b4-8794-a277d7a9a227)
