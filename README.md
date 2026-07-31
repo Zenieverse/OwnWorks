@@ -15,10 +15,13 @@ https://vimeo.com/1144376770 (20 pcs Col.)
 
 https://github.com/Zenieverse/OwnWorkAI
 
-<img width="1240" height="1748" alt="IMG_1731" src="https://github.com/user-attachments/assets/614796b5-e8f4-478a-a4ea-12133325e4e6" />
+
+<img width="1240" height="1748" alt="IMG_1855" src="https://github.com/user-attachments/assets/56448985-503c-4f0c-8cc0-1472b851454a" />
 
 
 <img width="1414" height="2000" alt="IMG_1704" src="https://github.com/user-attachments/assets/751c8ff3-fa5e-4989-9d8a-522fd96ffb28" />
+
+<img width="1240" height="1748" alt="IMG_1855" src="https://github.com/user-attachments/assets/cdbe95fc-0727-4745-8fb4-bcd773162149" />
 
 
 Inspired by the Combo of Heart and Mind in one Package experienced with bless in 2026
