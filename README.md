@@ -15,6 +15,8 @@ https://vimeo.com/1144376770 (20 pcs Col.)
 
 https://github.com/Zenieverse/OwnWorkAI
 
+<img width="1240" height="1748" alt="IMG_1966" src="https://github.com/user-attachments/assets/07e6c4e6-2817-435e-a143-3928894d9c56" />
+
 
 <img width="1240" height="1748" alt="IMG_1855" src="https://github.com/user-attachments/assets/56448985-503c-4f0c-8cc0-1472b851454a" />
 
