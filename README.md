@@ -23,8 +23,6 @@ https://github.com/Zenieverse/OwnWorkAI
 
 <img width="1414" height="2000" alt="IMG_1704" src="https://github.com/user-attachments/assets/751c8ff3-fa5e-4989-9d8a-522fd96ffb28" />
 
-<img width="1240" height="1748" alt="IMG_1855" src="https://github.com/user-attachments/assets/cdbe95fc-0727-4745-8fb4-bcd773162149" />
-
 
 Inspired by the Combo of Heart and Mind in one Package experienced with bless in 2026
 
