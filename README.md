@@ -18,7 +18,7 @@ https://github.com/Zenieverse/OwnWorkAI
 <img width="1240" height="1748" alt="IMG_1966" src="https://github.com/user-attachments/assets/07e6c4e6-2817-435e-a143-3928894d9c56" />
 
 
-<img width="1240" height="1748" alt="IMG_1855" src="https://github.com/user-attachments/assets/56448985-503c-4f0c-8cc0-1472b851454a" />
+<img width="1240" height="1748" alt="0001-8848961441536113269" src="https://github.com/user-attachments/assets/63cbf52c-7d35-4f11-b705-a1227058a990" />
 
 
 <img width="1414" height="2000" alt="IMG_1704" src="https://github.com/user-attachments/assets/751c8ff3-fa5e-4989-9d8a-522fd96ffb28" />
