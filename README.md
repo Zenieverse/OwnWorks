@@ -15,7 +15,8 @@ https://vimeo.com/1144376770 (20 pcs Col.)
 
 https://github.com/Zenieverse/OwnWorkAI
 
-<img width="1414" height="2000" alt="Covid19 MedFigure" src="https://github.com/user-attachments/assets/2be57aba-a430-40ad-abb4-bd0cacde4787" />
+<img width="1414" height="2000" alt="C19 MedFigure" src="https://github.com/user-attachments/assets/9f6d2283-8356-436c-8b27-f5ccf8c5871f" />
+
 
 1. Kindness is in some families' blueblood.
 2. True stories: our Grandma got help from the Mother Dr; our Mom received the help from the Mother and Daughter Drs; I myself have been helping out by the Daughter Dr., ...
