@@ -15,6 +15,12 @@ https://vimeo.com/1144376770 (20 pcs Col.)
 
 https://github.com/Zenieverse/OwnWorkAI
 
+<img width="1414" height="2000" alt="Covid19 MedFigure" src="https://github.com/user-attachments/assets/2be57aba-a430-40ad-abb4-bd0cacde4787" />
+
+1. Kindness is in some families' blueblood.
+2. True stories: our Grandma got help from the Mother Dr; our Mom received the help from the Mother and Daughter Drs; I myself have been helping out by the Daughter Dr., ...
+3. Our Grandma was welcome by God amid mild Covid19 2022, not because of the harsh C19
+
 <img width="1240" height="1748" alt="IMG_1966" src="https://github.com/user-attachments/assets/07e6c4e6-2817-435e-a143-3928894d9c56" />
 
 
