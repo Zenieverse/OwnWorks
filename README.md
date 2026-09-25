@@ -15,6 +15,11 @@ https://vimeo.com/1144376770 (20 pcs Col.)
 
 https://github.com/Zenieverse/OwnWorkAI
 
+
+![Uploading Hack2skill-Certificate.png…]()
+<img width="2048" height="1536" alt="InCoatofWhite" src="https://github.com/user-attachments/assets/6f9d40af-7780-44c4-a40b-90da9ce6fe0b" />
+
+
 <img width="1414" height="2000" alt="C19 MedFigure" src="https://github.com/user-attachments/assets/9f6d2283-8356-436c-8b27-f5ccf8c5871f" />
 
 
