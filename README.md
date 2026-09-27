@@ -20,9 +20,6 @@ https://github.com/Zenieverse/OwnWorkAI
 <img width="2048" height="1536" alt="InCoatofWhite" src="https://github.com/user-attachments/assets/6f9d40af-7780-44c4-a40b-90da9ce6fe0b" />
 
 
-<img width="1414" height="2000" alt="C19 MedFigure" src="https://github.com/user-attachments/assets/9f6d2283-8356-436c-8b27-f5ccf8c5871f" />
-
-
 1. Kindness is in some families' blueblood.
 2. True stories: our Grandma got help from the Mother Dr; our Mom received the help from the Mother and Daughter Drs; I myself have been helping out by the Daughter Dr., ...
 3. Our Grandma was welcome by God amid mild Covid19 2022, not because of the harsh C19
