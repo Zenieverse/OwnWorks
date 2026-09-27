@@ -19,6 +19,8 @@ https://github.com/Zenieverse/OwnWorkAI
 ![Uploading Hack2skill-Certificate.png…]()
 <img width="2048" height="1536" alt="InCoatofWhite" src="https://github.com/user-attachments/assets/6f9d40af-7780-44c4-a40b-90da9ce6fe0b" />
 
+<img width="1414" height="2000" alt="Covid19 MedFigure" src="https://github.com/user-attachments/assets/05605161-93bd-44b4-ac2b-9056fcf6a9b9" />
+
 
 1. Kindness is in some families' blueblood.
 2. True stories: our Grandma got help from the Mother Dr; our Mom received the help from the Mother and Daughter Drs; I myself have been helping out by the Daughter Dr., ...
