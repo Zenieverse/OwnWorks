@@ -1,4 +1,5 @@
 # OwnWorks
+
 Own works of creativity inspired by real personal experiences
 
 ComSing @ https://comsing-764082783379.us-west1.run.app has been added. Note: Go check out Demo Hub ; Since 2005, this has been my Obsession ...
@@ -14,6 +15,8 @@ https://youtu.be/YBYkbS-Mzds?si=GEDaokD9SdwynY8U
 https://vimeo.com/1144376770 (20 pcs Col.)
 
 https://github.com/Zenieverse/OwnWorkAI
+
+<img width="1080" height="1080" alt="ToBlessedDears" src="https://github.com/user-attachments/assets/154397a9-f923-4da5-8a38-911929b665ce" />
 
 
 ![Uploading Hack2skill-Certificate.png…]()
