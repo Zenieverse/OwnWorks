@@ -18,7 +18,7 @@ https://github.com/Zenieverse/OwnWorkAI
 
 <img width="1080" height="1080" alt="ToBlessedDears" src="https://github.com/user-attachments/assets/154397a9-f923-4da5-8a38-911929b665ce" />
 
-Great Gratitudes towards my Fam, the Drs, esp. Dr.T, my loved ones wherever you are, and myself, for all.
+Great Gratitudes towards my Fam, the Drs, esp. Dr. T, my loved ones - wherever you are, and myself, for all.
 
 <img width="2048" height="1536" alt="InCoatofWhite" src="https://github.com/user-attachments/assets/6f9d40af-7780-44c4-a40b-90da9ce6fe0b" />
 
