@@ -18,8 +18,6 @@ https://github.com/Zenieverse/OwnWorkAI
 
 <img width="1080" height="1080" alt="ToBlessedDears" src="https://github.com/user-attachments/assets/154397a9-f923-4da5-8a38-911929b665ce" />
 
-
-![Uploading Hack2skill-Certificate.png…]()
 <img width="2048" height="1536" alt="InCoatofWhite" src="https://github.com/user-attachments/assets/6f9d40af-7780-44c4-a40b-90da9ce6fe0b" />
 
 <img width="1414" height="2000" alt="C19 MedFigure" src="https://github.com/user-attachments/assets/552018eb-26b8-4ab0-b754-32f1f2e56310" />
